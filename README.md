@@ -1,0 +1,1 @@
+# TrashGlitch-WhatsApp-Version-1.0
